@@ -35,7 +35,9 @@
 <br> anyone who makes fun of; typing quirks, age/pet regression, alterhumans
 <br> anyone who violates touch triggers or other boundaries of that sort
 <br> DO NOT fucking traumadump on me if i dont know you
-
+<br> 
+<br> if i accidentally follow anyone who applies to my dni, its an accident
+<br> i might have missed something in their bio.
    
 </p>
    <!-- DNI -->
