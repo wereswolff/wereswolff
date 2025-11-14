@@ -45,7 +45,7 @@
 <!-- THINICE -->
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly freaky people, under 13
-   <br>most roblox fans unless friends, spam following or i int first
+   <br>roblox & slenderverse fans unless friends, spam follow or i int first
    <br>constantly dry texters.... talking to dry people makes me anxious
 </p>
 <!-- THINICE -->
