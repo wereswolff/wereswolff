@@ -57,7 +57,6 @@
 <br> i am very emotionallyy unstable + have identity and anger issues
 <br> my mood may change very quickly, especially if i become triggered
 <br> i can get irrationally upset or become mean VERY easily 
-
 <br> i have A LOT of trouble keeping up w/ relationships. even when i like you
 <br>might go quiet, especially in groups. more of a listener than a yapper
 <br>also im aroace . no i dont want to be your boyfriend
