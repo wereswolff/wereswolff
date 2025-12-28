@@ -59,7 +59,7 @@
 <br> i can get irrationally upset or become mean VERY easily 
 <br> i have A LOT of trouble keeping up w/ relationships. even when i like you
 <br>might go quiet, especially in groups. more of a listener than a yapper
-<br>also im aroace . no i dont want to be your boyfriend
+<br>also im not looking for a partner go away LOORDDDD
 </p>
 <!-- BYI -->
 
