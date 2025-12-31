@@ -6,8 +6,9 @@
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/8d440095-da44-499a-a0ad-fee1c7b0d778" /></p>
-
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/mak7iv.jpg" />
+<BR>
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/3ot4i6.webp" /></p>
 
    <!-- LINKS -->
 <p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">about me . . .</a></p>
