@@ -33,7 +33,7 @@
 <ins><b><em>dni</em></b></ins> basic crit,, proshit/darkshit unless under recovery
 <br>btd, ybc, country human, tcoaall, vivsie supporters etc.
 <br> fake claimers and label police ; anti good faith
-<br> any1 making fun of typing quirks, regression, otherkin
+<br> any1 making fun of typing quirks, regression, althumanity
 <br> any1 who violates touch triggers or other boundaries 
 <br> DO NOT vent without asking if i dont know you
 <br> if i accidentally follow you and you're in my dni
