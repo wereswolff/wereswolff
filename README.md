@@ -30,7 +30,7 @@
    <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> basic crit,, proshit/darkshit unless under recovery
+<ins><b><em>dni</em></b></ins> basic crit,, proshit/darkshit whatever dark romance bs
 <br>btd, ybc, country human, tcoaall, vivsie supporters etc.
 <br> fake claimers and label police ; anti good faith
 <br> any1 making fun of typing quirks, regression, althumanity
