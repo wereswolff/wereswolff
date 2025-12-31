@@ -30,36 +30,32 @@
    <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall, vivsiepop supporters
-<br>boyfriend to death, ybc, country human fans
-<br>exclusionists, fake claimers, antiselfship, antikin, anti good faith
-<br> anyone who makes fun of; typing quirks, age/pet regression, alterhumans
-<br> anyone who violates touch triggers or other boundaries of that sort
-<br> DO NOT fucking traumadump on me if i dont know you
-<br> 
-<br> if i accidentally follow anyone who applies to my dni, its an accident
-<br> i might have missed something in their bio.
-   
+<ins><b><em>dni</em></b></ins> basic crit,, proshit/darkshit unless under recovery
+<br>btd, ybc, country human, tcoaall, vivsie supporters etc.
+<br> fake claimers and label police ; anti good faith
+<br> any1 making fun of typing quirks, regression, otherkin
+<br> any1 who violates touch triggers or other boundaries 
+<br> DO NOT vent without asking if i dont know you
+<br> if i accidentally follow you and you're in my dni
+<br> js block me gangf i cant fucking read LMFAOO
 </p>
    <!-- DNI -->
 
 <!-- THINICE -->
 <p align="right">
-  <ins><b><em>thin ice</em></b></ins> homestuck, overly freaky people, under 13
-   <br>roblox & slenderverse fans unless friends, spam follow or i int first
-   <br>constantly dry texters.... talking to dry people makes me anxious
+  <ins><b><em>thin ice</em></b></ins> homestuck, overly sexual, under 13
+   <br>roblox & slenderverse unless friends, spam follow or i int first
+   <br>constantly dry texters....
 </p>
 <!-- THINICE -->
 
 
    <!-- BYI -->
-<p align="left"><ins><b><em>byi</em></b></ins> im a sharing yume !11 & <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> . . . 
-<br> bpd and avpd traits, so please iwcaution always
+<p align="left"><ins><b><em>byi</em></b></ins> im a sharing yume !11 & <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> maybe . . . 
+<br> bpd & avpd [& others...,] traits, so please iwcaution always
 <br> i am very emotionallyy unstable + have identity and anger issues
-<br> my mood may change very quickly, especially if i become triggered
-<br> i can get irrationally upset or become mean VERY easily 
-<br> i have A LOT of trouble keeping up w/ relationships. even when i like you
-<br>might go quiet, especially in groups. more of a listener than a yapper
+<br> i have A LOT of trouble keeping up w/ relationships my bad g 
+<br> sometimes i dont wanna talk no hard feelings but i will ignore you
 <br>also im not looking for a partner go away LOORDDDD
 </p>
 <!-- BYI -->
