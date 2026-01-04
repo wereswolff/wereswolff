@@ -55,7 +55,7 @@
 <br> bpd & avpd [& others...,] traits, so please iwcaution always
 <br> i am very emotionallyy unstable + have identity and anger issues
 <br> i have A LOT of trouble keeping up w/ relationships my bad g 
-<br> sometimes i dont wanna talk no hard feelings but i will ignore you
+<br> sometimes i dont wanna talk no hard feelings but i will js not int 
 <br>also im not looking for a partner go away LOORDDDD
 </p>
 <!-- BYI -->
