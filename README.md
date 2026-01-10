@@ -33,7 +33,7 @@
    <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> basic crit,, proship / darkship & pro contact, anti recovery
+<ins><b><em>dni</em></b></ins> basic crit, pro/darkship, pro contact harmful para, anti recovery
 <br>tcoall, yarichin bitch club, btd, country humans ... and vivsie supporters  
 <br>violating triggers and boundaries is weird af includig touch triggers
 <br> label policing & anti good faith identities
