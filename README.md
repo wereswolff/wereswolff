@@ -6,10 +6,13 @@
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/mak7iv.jpg" />
+<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/c1e0466a-b61c-4226-b2e0-24ec8e50e751" />
 <BR>
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/3ot4i6.webp" /></p>
-
+<p align="center">
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2d8cb369-12f7-487a-addc-f8edea72cef1" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/78c7adcc53e3c7f0c520f78b143a712b/c5e0036078e2ef89-23/s100x200/10514ec44a24c504ff7bfa6d106d7522bca32e94.gifv" />
+</p>
    <!-- LINKS -->
 <p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">about me . . .</a></p>
    <!-- LINKS -->
@@ -60,14 +63,6 @@
 </p>
 <!-- BYI -->
 
-
-   
-<br>
-<p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/b3f7338f7465f9ca2cfcfe7a59bf0461/0c5fd159ba912643-72/s100x200/d4b9f3a001ef621f17a521997f6d64a49b6cf45d.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/e8540b03cc566deb36fde6004f9df95c/0c5fd159ba912643-7b/s100x200/6101b93f3003e2ab8c88fb5974a70cf7cc037dbe.gifv" />
-</p>
    <!-- IMAGES -->
 
 <!-- BYI -->
