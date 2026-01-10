@@ -33,14 +33,10 @@
    <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> basic crit,, proshit/darkshit whatever dark romance bs
-<br>btd, ybc, country human, tcoaall, vivsie supporters etc.
-<br> fake claimers and label police ; anti good faith
-<br> any1 making fun of typing quirks, regression, althumanity
-<br> any1 who violates touch triggers or other boundaries 
-<br> DO NOT vent without asking if i dont know you
-<br> if i accidentally follow you and you're in my dni
-<br> js block me gangf i cant fucking read LMFAOO
+<ins><b><em>dni</em></b></ins> basic crit,, proship / darkship & pro contact, anti recovery
+<br>tcoall, yarichin bitch club, btd, country humans ... and vivsie supporters  
+<br>violating triggers and boundaries is weird af includig touch triggers
+<br> label policing & anti good faith identities
 </p>
    <!-- DNI -->
 
@@ -48,18 +44,16 @@
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly sexual, under 13
    <br>roblox & slenderverse unless friends, spam follow or i int first
-   <br>constantly dry texters....
+   <br>fat jokes and constantly dry texters
 </p>
 <!-- THINICE -->
 
 
    <!-- BYI -->
-<p align="left"><ins><b><em>byi</em></b></ins> im a sharing yume !11 & <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> maybe . . . 
-<br> bpd & avpd [& others...,] traits, so please iwcaution always
-<br> i am very emotionallyy unstable + have identity and anger issues
-<br> i have A LOT of trouble keeping up w/ relationships my bad g 
-<br> sometimes i dont wanna talk no hard feelings but i will js not int 
-<br>also im not looking for a partner go away LOORDDDD
+<p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin ..
+<br>bpd and avpd traits , i experience extreme emotions+anger issues
+<br>generally just unstable LMFAOso interact with caution
+<br>not looking for a partner go away LOORDDDD
 </p>
 <!-- BYI -->
 
