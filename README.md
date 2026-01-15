@@ -54,7 +54,7 @@
 <br>bpd and avpd traits , i experience extreme emotions+anger issues
 <br>generally just unstable LMFAOso interact with caution
 <br>ohalso i say slurssometimes . redeemeabel slurs ofcourse ..!!!!
-<br>not looking for a partner go away
+<br>not looking for a partner go away i dont online date
 </p>
 <!-- BYI -->
 
