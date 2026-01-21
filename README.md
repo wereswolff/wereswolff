@@ -44,7 +44,8 @@
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly sexual, under 13
    <br>roblox & slenderverse unless friends, spam follow or i int first
-   <br>constantly dry texters 
+   <br>constantly dry , venting / dumping without asking literally just ask holy
+   <br>otherwise i block freely especially if i find you annoying or dislike you
 </p>
 <!-- THINICE -->
 
