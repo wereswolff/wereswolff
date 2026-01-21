@@ -50,7 +50,7 @@
 
 
    <!-- BYI -->
-<p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin ..
+<p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin .. also raging lesbian lalala
 <br>bpd and avpd traits , i experience extreme emotions+anger issues
 <br>generally just unstable LMFAOso interact with caution
 <br>not looking for a partner go away i dont online date
