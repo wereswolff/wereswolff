@@ -53,8 +53,8 @@
 <p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin ..
 <br>bpd and avpd traits , i experience extreme emotions+anger issues
 <br>generally just unstable LMFAOso interact with caution
-<br>i say [redeemable] slurssometimes 
 <br>not looking for a partner go away i dont online date
+<br>i say [redeemable] slurssometimes ok? ok... 
 </p>
 <!-- BYI -->
 
