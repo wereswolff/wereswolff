@@ -54,6 +54,8 @@
 <p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin .. also raging lesbian lalala
 <br>bpd and avpd traits , i experience extreme emotions+anger issues
 <br>+mild paranoia ,, generally just unstable LMFAo interact with caution
+<br>imight avoid talking toyou or ignore you at times my bad fr
+<br>probably not your fault im just constantly low energy 
 <br>not looking for a partner go away i dont online date
 <br>i say [redeemable] slurssometimes ok? ok... 
 </p>
