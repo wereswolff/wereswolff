@@ -44,6 +44,7 @@
    <!-- BYI -->
 <p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin .. also raging lesbian lalalalala
 <br>imight avoid talking toyou or ignore you due to low energy/capacity
+<br>i also might have pub chat off i usually put that in pony name thoug
 <br>bpd and avpd traits . generally unstable int with caution
 <br>not looking for a partner ggooo awyayy .....
 <br>i say [redeemable] slurssometimes
