@@ -19,7 +19,7 @@
 <summary></summary>
 <br>
    <!-- CLICK COUNTER -->
-<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=visitors&color=3b1d20&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=4d232e&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    <!-- DNI -->
    <br>
