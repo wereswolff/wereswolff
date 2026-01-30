@@ -4,7 +4,7 @@
    
    <!-- IMAGES -->
    <p align="center">
-      <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f7buoskeg2eh6owoapyrbd5hrq&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=f13a8f&bar_color_cover=false">
+      <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f7buoskeg2eh6owoapyrbd5hrq&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=5c0e21&bar_color_cover=false">
 <BR>
    <br>
    <!-- LINKS -->
@@ -19,7 +19,7 @@
 <summary></summary>
 <br>
    <!-- CLICK COUNTER -->
-<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=4d232e&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=5c0e21&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    <!-- DNI -->
    <br>
