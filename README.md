@@ -1,35 +1,26 @@
 
 
-   <!-- CLICK COUNTER -->
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=visitors&color=831f05&style=flat" alt="freddiemercuryisafterme" /> </p>
-   <!-- CLICK COUNTER -->
+
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://64.media.tumblr.com/96ebd635d550f232fcb52e9274ef41f9/6bd249413886f4d3-e8/s640x960/5fb663886803caad3f34cb36140c285b225cc637.gifv" />
+      <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f7buoskeg2eh6owoapyrbd5hrq&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=f13a8f&bar_color_cover=false">
 <BR>
+   <br>
+   <!-- LINKS -->
 <p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2d8cb369-12f7-487a-addc-f8edea72cef1" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/78c7adcc53e3c7f0c520f78b143a712b/c5e0036078e2ef89-23/s100x200/10514ec44a24c504ff7bfa6d106d7522bca32e94.gifv" />
+<a href="https://pronouns.cc/@140roaches">more about me</a>
 </p>
    <!-- LINKS -->
-<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">about me . . .</a></p>
-   <!-- LINKS -->
 ⠀
-   
-   <p align="center">
-      iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .
-   <br>
 ⠀
-
-   ⠀
    <div align="center">
 <details>
-
-   
 <summary></summary>
-
+<br>
+   <!-- CLICK COUNTER -->
+<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=visitors&color=831f05&style=flat" alt="freddiemercuryisafterme" /> </p>
+   <!-- CLICK COUNTER -->
    <!-- DNI -->
    <br>
 <p align="left">
@@ -70,5 +61,9 @@
 <br>also black christmas yerp . and warframe
 <br>and more.... go my pronounpage
 </p>
-
+<p align="center">
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2d8cb369-12f7-487a-addc-f8edea72cef1" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/78c7adcc53e3c7f0c520f78b143a712b/c5e0036078e2ef89-23/s100x200/10514ec44a24c504ff7bfa6d106d7522bca32e94.gifv" />
+</p>
 </details>
