@@ -58,7 +58,7 @@
 <p align="right">
   <ins><b><em>int</em></b></ins>
 <br>horror fans plepleasese .... creep tapes , dbd , scream and saw fans wya..
-<br>scream and dbd my oldest??? special intersts.... pleasew.....
+<br>scream and dbd my special intersts.... pleasew.....
 <br>also black christmas yerp . and warframe
 <br>and more.... go my pronounpage
 </p>
