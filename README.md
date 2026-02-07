@@ -54,8 +54,7 @@
 
 <!-- BYI -->
 <p align="right">
-  <ins><b><em>int</em></b></ins>
-<br>been getting into fallout new vegas fnv fans int hi.... leans on wall coolly
+  <ins><b><em>int</em></b></ins> imgetting into fallout new vegas fnv fans int hi.... leans on wall coolly
 <br>horror , specifically creep tapes , scream and saw fans ... also reanimator
 <br>resident evil 7 and 8 have aspecial place in my 🤍 i also love skyrim hi
 <br>lots more .... so much more.. i cant even begin to list it all...
