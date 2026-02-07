@@ -58,8 +58,8 @@
 <p align="right">
   <ins><b><em>int</em></b></ins>
 <br>been getting into fallout new vegas fnv fans int hi.... leans on wall coolly
-<br>horror fans plepleasese .... creep tapes , dbd , scream and saw fans..
-<br>also black christmas yerp . and warframe
+<br>horror fans in general , more specifically creep tapes , scream and saw
+<br>resident evil 7 and 8 have aspecial place in my 🤍
 <br>and more.... go my pronounpage
 </p>
 <p align="center">
