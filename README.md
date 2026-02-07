@@ -25,7 +25,7 @@
    <br>
 <p align="left">
 <ins><b><em>dni</em></b></ins> basic crit, pro/darkship, pro contact harmful para, anti recovery
-<br>tcoall, yarichin bitch club, btd, any weird fetish fandoms, tcc, vivsie fans 
+<br>tcoall, yarichin bitch club, btd, any weird fetish fandoms, vivsie fans 
 <br>intentionally ignores triggers & boundaries includig touch triggers
 <br>polices other peoples identities & anti good faith  
 </p>
