@@ -4,6 +4,8 @@
    
    <!-- IMAGES -->
    <p align="center">
+      <img align="center" src="https://files.catbox.moe/ra1ibu.png">
+      <br>
       <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f7buoskeg2eh6owoapyrbd5hrq&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=5c0e21&bar_color_cover=false">
 <BR>
    <br>
