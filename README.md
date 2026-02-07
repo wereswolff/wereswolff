@@ -4,7 +4,7 @@
    
    <!-- IMAGES -->
    <p align="center">
-      <img width="350" height="350" alt="image" src="https://files.catbox.moe/4nytzw.png">
+      <img width="350" height="350" alt="image" src="https://files.catbox.moe/r582rz.jpg">
       <br>
 
    <!-- LINKS -->
