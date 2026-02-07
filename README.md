@@ -58,7 +58,7 @@
 <p align="right">
   <ins><b><em>int</em></b></ins>
 <br>been getting into fallout new vegas fnv fans int hi.... leans on wall coolly
-<br>horror fans in general , more specifically creep tapes , scream and saw
+<br>horror , more specifically creep tapes , scream and saw ... also reanimator
 <br>resident evil 7 and 8 have aspecial place in my 🤍
 <br>and more.... go my pronounpage
 </p>
