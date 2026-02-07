@@ -63,8 +63,8 @@
 <br>and more.... go my pronounpage
 </p>
 <p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2d8cb369-12f7-487a-addc-f8edea72cef1" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f6507028-30fc-4ca3-89ad-00653dc299c3" />
+<img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/4fbeb7bf-c743-4980-9495-fe6b52b009fc" />
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/78c7adcc53e3c7f0c520f78b143a712b/c5e0036078e2ef89-23/s100x200/10514ec44a24c504ff7bfa6d106d7522bca32e94.gifv" />
 </p>
 </details>
