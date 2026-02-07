@@ -35,8 +35,8 @@
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuckies scare me sorry, overly sexual, under 13
    <br>roblox & slenderverse fans unless friends, spam follow or i int first
-   <br>constantly dry . venting / dumping without asking literally just ask holy 
-   <br>otherwise i block freely,especially if i find you annoying or js dislike you
+   <br>constantly dry . venting / dumping without asking literally just ask 
+   <br>otherwise i block freely if i find you annoying / dislike you lalala
 </p>
 <!-- THINICE -->
 
