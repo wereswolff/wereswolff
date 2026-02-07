@@ -25,9 +25,9 @@
    <br>
 <p align="left">
 <ins><b><em>dni</em></b></ins> basic crit, pro/darkship, pro contact harmful para, anti recovery
-<br>tcoall, yarichin bitch club, btd, country humans ... and vivsie supporters  
-<br>violating triggers and boundaries is weird af includig touch triggers
-<br>label policing & anti good faith identities
+<br>tcoall, yarichin bitch club, btd, any weird fetish fandoms, tcc, vivsie fans 
+<br>intentionally ignores triggers & boundaries includig touch triggers
+<br>polices other peoples identities & anti good faith  
 </p>
    <!-- DNI -->
 
@@ -35,8 +35,8 @@
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly sexual, under 13
    <br>roblox & slenderverse unless friends, spam follow or i int first
-   <br>constantly dry , venting / dumping without asking literally just ask holy
-   <br>otherwise i block freely especially if i find you annoying or dislike you
+   <br>constantly dry . venting / dumping without asking literally just ask holy 
+   <br>otherwise i block freely,especially if i find you annoying or js dislike you
 </p>
 <!-- THINICE -->
 
@@ -46,8 +46,7 @@
 <br>imight avoid talking toyou or ignore you due to low energy/capacity
 <br>i also might have pub chat off i usually put that in pony name thoug
 <br>bpd and avpd traits . generally unstable int with caution
-<br>not looking for a partner ggooo awyayy .....
-<br>i say [redeemable] slurssometimes
+
 
 </p>
 <!-- BYI -->
@@ -58,9 +57,9 @@
 <p align="right">
   <ins><b><em>int</em></b></ins>
 <br>been getting into fallout new vegas fnv fans int hi.... leans on wall coolly
-<br>horror , more specifically creep tapes , scream and saw ... also reanimator
-<br>resident evil 7 and 8 have aspecial place in my 🤍
-<br>and more.... go my pronounpage
+<br>horror , specifically creep tapes , scream and saw fans ... also reanimator
+<br>resident evil 7 and 8 have aspecial place in my 🤍 i also love skyrim hi
+<br>lots more .... so much more.. i cant even begin to list it all...
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f6507028-30fc-4ca3-89ad-00653dc299c3" />
