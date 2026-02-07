@@ -6,12 +6,10 @@
    <p align="center">
       <img width="350" height="350" alt="image" src="https://files.catbox.moe/ra1ibu.png">
       <br>
-      <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f7buoskeg2eh6owoapyrbd5hrq&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=5c0e21&bar_color_cover=false">
-<BR>
-   <br>
+
    <!-- LINKS -->
 <p align="center">
-<a href="https://pronouns.cc/@140roaches">more about me</a>
+<a href="https://rentry.co/wereswolff">rentry</a>ㅤ<a href="https://pronouns.cc/@140roaches">pronouns.cc</a>
 </p>
    <!-- LINKS -->
 ⠀
@@ -21,7 +19,7 @@
 <summary></summary>
 <br>
    <!-- CLICK COUNTER -->
-<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=5c0e21&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=9a9a9a&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    <!-- DNI -->
    <br>
