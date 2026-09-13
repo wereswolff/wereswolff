@@ -21,47 +21,24 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=hi&color=9a9a9a&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    <!-- DNI -->
-   <br>
-<p align="left">
-<ins><b><em>dni</em></b></ins> basic crit, pro/darkship, pro contact harmful para, anti recovery
-<br>tcoall, yarichin bitch club, btd, any weird fetish fandoms, vivsie fans 
-<br>intentionally ignores triggers & boundaries includig touch triggers
-<br>polices other peoples identities & anti good faith  
-</p>
+   
+
    <!-- DNI -->
 
 <!-- THINICE -->
-<p align="right">
-  <ins><b><em>thin ice</em></b></ins> homestuckies scare me sorry, overly sexual, under 13
-   <br>roblox & slenderverse fans unless friends, spam follow or i int first
-   <br>constantly dry . venting / dumping without asking literally just ask 
-   <br>otherwise i block freely if i find you annoying / dislike you lalala
-</p>
+
 <!-- THINICE -->
 
 
    <!-- BYI -->
-<p align="left"><ins><b><em>byi</em></b></ins> sharing yumeshipper and fictkin .. also raging lesbian lalalalala
-<br>imight avoid talking toyou or ignore you due to low energy/capacity
-<br>i also might have pub chat off i usually put that in pony name thoug
-<br>bpd and avpd traits . generally unstable int with caution
 
 
-</p>
+
+
 <!-- BYI -->
 
    <!-- IMAGES -->
 
 <!-- BYI -->
-<p align="right">
-  <ins><b><em>int</em></b></ins> imgetting into fallout new vegas fnv fans int hi.... leans on wall coolly
-<br>horror , specifically creep tapes , scream and saw fans ... also reanimator
-<br>resident evil 7 and 8 have aspecial place in my 🤍 i also love skyrim hi
-<br>lots more .... so much more.. i cant even begin to list it all...
-</p>
-<p align="center">
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f6507028-30fc-4ca3-89ad-00653dc299c3" />
-<img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/4fbeb7bf-c743-4980-9495-fe6b52b009fc" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/78c7adcc53e3c7f0c520f78b143a712b/c5e0036078e2ef89-23/s100x200/10514ec44a24c504ff7bfa6d106d7522bca32e94.gifv" />
-</p>
-</details>
+
+  
